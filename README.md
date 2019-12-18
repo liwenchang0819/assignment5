@@ -124,3 +124,11 @@ Jiyoo: yes
 • Would you keep using this app after what you saw today? 
 Jiyoo: yes . Women are able to have emotional security and safety with an honest conversation, share deep and intimate thoughts. Being able to understand the mental health of the same gender with their health-care needs.
 
+
+
+
+
+User Data:
+
+
+
